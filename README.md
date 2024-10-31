@@ -4,8 +4,6 @@
 
 🌱 I’m currently learning Web Security.
 
-💞️ I’m looking to collaborate on nothing at the moment.
-
 📫 You can reach me at loserxiaoke@gmail.com.
 
 😄 Pronouns: freedom.
